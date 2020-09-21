@@ -13,4 +13,4 @@ V2ex https://www.v2ex.com/t/670260
 
 闲鱼 mahaonan1993
 
-自动发卡地址: 2yuansvip.com
+自动发卡地址: https://2yuansvip.com/product/
